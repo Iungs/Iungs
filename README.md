@@ -6,8 +6,8 @@
 
 18+ & -13 dni, excluding friends + crowns
 
-free to c+h unless im w friends
-
 everything i say is satire, if ur sensitive i dont reckon u should int
+
+free to c+h unless im w friends
 
 >dni if u think u love yuta or freminet more than me :p
